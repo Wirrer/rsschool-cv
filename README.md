@@ -1,1 +1,0 @@
-https://wirrer.github.io/rsschool-cv/cv
